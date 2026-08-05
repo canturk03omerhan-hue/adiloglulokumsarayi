@@ -1,1 +1,1 @@
-# adilo-lulokumsarayi
+# adiloglulokumsarayi
